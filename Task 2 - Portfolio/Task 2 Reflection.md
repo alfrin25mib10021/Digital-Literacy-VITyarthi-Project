@@ -1,1 +1,3 @@
+# Task 2 Reflection #
+I created my profiles on GitHub, LinkedIn, and Kaggle.It was a way for me to stake my claim in the professional world. As a first-year student, I am realizing how these three platforms are interconnected. GitHub is where I perform my ‘trial and error’ for coding, Kaggle is where I perform my ‘trial and error’ for tackling the real world, and LinkedIn is where I am trying to bridge the gap between the academic and professional world. My hope for the next four years is not merely that I have these profiles, but that I can use them as a way to showcase my growth, curiosity, and passion.
 
