@@ -1,1 +1,2 @@
-
+# Task 1: Digital Literacy Infographic #
+The digital literacy infographic provides an overview of digital literacy including the role it plays in our current technology based society. Safe Online Practices, protecting your Digital Identity, recognizing Phishing threats, and maintaining Privacy on Social Media are covered in the infographic. Professional Email communication, as well as responsible Digital Behavior, are highlighted. The infographic provides a resource for raising awareness on the importance of being smart and safe when using digital platforms.
