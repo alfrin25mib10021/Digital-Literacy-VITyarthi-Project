@@ -1,1 +1,2 @@
-
+# REPORT #
+While performing this task, I was honestly surprised by how common and easy these scams are. In fact, most of these scams look very genuine, and anyone can fall for them if they are not careful. I also realized that even a small mistake, like clicking on a wrong link or approving a payment request, can result in big trouble. This task also taught me how I need to be careful while using online platforms. One of the important habits that I am going to form while performing this task is that I need to be careful while approving any payment request. I will not trust any unknown messages or calls. I will not share any information with anyone.
