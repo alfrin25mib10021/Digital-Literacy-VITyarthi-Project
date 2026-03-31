@@ -1,4 +1,4 @@
-# 🐝UPI Fraud🐝 #
+# 🪱UPI Fraud🪱 #
 
 UPI fraud is one of the most common types of online scams in India today, especially among students and those who are new to online payment systems. UPI fraud generally occurs when a person is tricked into sending money.
 
